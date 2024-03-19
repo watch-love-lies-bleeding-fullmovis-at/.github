@@ -4,6 +4,9 @@
 
 ** LAST UPDATED : MARCH 20, 2024 **
 
+### [Watch Online 👉  Love Lies Bleeding (2024) Fullmovie Online](https://bnidigital.com/dlvXQ)
+### [Online Download 👉 Love Lies Bleeding (2024) Fullmovie Online HD](https://bnidigital.com/dlvXQ)
+
 This movie is one of the best in its genre. Love Lies Bleeding will be available to watch
 
 online on Netflix very soon!
